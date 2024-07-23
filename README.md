@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @randomwebguy0
+- I’m interested in stuff (tech)
+- I’m currently learning things
+- Pronouns: He/Him
