@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @randomwebguy0
+👋 Hi
 - Pronouns: He/Him
 - Age: Minor
-- Currently having a music addiction
-- My browser is Arc (amazing)
-- My webpage is https://randomwebguy.carrd.co/
+- Music addiction
+- Arc Browser user (amazing)
+- webpage: https://randomwebguy.carrd.co/
