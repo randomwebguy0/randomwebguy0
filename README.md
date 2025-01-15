@@ -1,6 +1,6 @@
 👋 Hi
 - Pronouns: He/Him
-- Age: Minor
+- Age: Minor (tbh u don't need to know that)
 - Music addiction
-- Arc Browser user (amazing)
 - webpage: https://randomwebguy.carrd.co/
+(i'm broke so i use carrd.co, and ngl it's good)
